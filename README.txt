@@ -1,2 +1,2 @@
-execution des taches pour l'ctivité partie2
+execution des taches pour l'activité partie2
 
